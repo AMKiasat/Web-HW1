@@ -1,0 +1,1 @@
+This repository is a homework and everthing in it can't and will not be used against me.
